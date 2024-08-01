@@ -16,4 +16,4 @@ Meu nome é Bruna Amorim.
 @bru_niinhaaa
 
 
-![](https://media1.tenor.com/m/0xyAhvx2nIwAAAAd/coreaninhas.gif)
+![](https://media1.tenor.com/m/Y1Z7qQVGs_0AAAAC/hmm-cute.gif)
