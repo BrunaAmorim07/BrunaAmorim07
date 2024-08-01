@@ -14,3 +14,6 @@ Meu nome é Bruna Amorim.
 
 00001105169704sp@al.educacao.sp.gov.br
 @bru_niinhaaa
+
+
+![](https://media1.tenor.com/m/0xyAhvx2nIwAAAAd/coreaninhas.gif)
